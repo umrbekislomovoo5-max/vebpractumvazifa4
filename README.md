@@ -1,0 +1,2 @@
+# vebpractumvazifa4
+umrbek
